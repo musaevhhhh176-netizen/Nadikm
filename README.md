@@ -1,2 +1,6 @@
 # Nadikm
 da
+POMNY
+KAK
+MOROSILO I YA SHLA IZ KINO
+RTO
